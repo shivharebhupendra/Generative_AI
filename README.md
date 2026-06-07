@@ -1,3 +1,3 @@
 # Generative_AI
 
-# In Progress (Something Good will Come Soon)
+# In Progress (Something good is coming your way soon.)
